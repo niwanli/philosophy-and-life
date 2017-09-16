@@ -914,3 +914,8 @@
 
 278 存在主义所强调的，就是要求我们直接面对及承担人生中的各种狂风暴雨。它让我们知道，每个人都可以成就自己与生俱有的愿望：成为一个真实的人！
 
+## Open the Door
+
+If you want to enter another room to explore the treasure you are looking for, you can open the door by clicking at [https://niwanli.github.io/](https://niwanli.github.io/ "Wanli | Home"). Or, if you want to contact me, please email me at **niwanli@yahoo.com**.
+
+
